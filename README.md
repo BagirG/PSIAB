@@ -1,1 +1,1 @@
-finally this project you can visit on psiab.or,id
+finally this project you can visit on https://psiab.or.id/
